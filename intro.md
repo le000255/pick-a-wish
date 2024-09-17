@@ -6,3 +6,4 @@ Acknowledging the power of the artifact, lots of ideas are emerging in Jonathan'
 
 Choices
 [Unlimited Knowledge](choice-1.md)
+[Super powers](choice-4.md)
