@@ -1,0 +1,2 @@
+Wealth and Prosperity: Jonathan wishes for immense wealth, thinking it will solve all his problems and allow him to live a life of luxury. But he soon realizes that money can’t buy happiness or true relationships.
+[Go back to inro](intro.md)

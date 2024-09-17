@@ -7,5 +7,6 @@ Acknowledging the power of the artifact, lots of ideas are emerging in Jonathan'
 Choices
 
 [Unlimited Knowledge](choice-1.md)
+[Wealth and Prosperity](choice-2.md)
 [Reuniting with a Lost Loved One](choice-3.md)
 [Super powers](choice-4.md)
