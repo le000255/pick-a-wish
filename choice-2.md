@@ -1,2 +1,2 @@
-Wealth and Prosperity: Jonathan wishes for immense wealth, thinking it will solve all his problems and allow him to live a life of luxury. But he soon realizes that money can’t buy happiness or true relationships.
+Wealth and Prosperity: Jonathan wishes for immense wealth, thinking it will solve all his problems and allow him to live a life of luxury. But he soon realizes that money can’t buy happiness or true relationships. All the coins and golds will turn intro rusted iron within 24 hrs.
 [Go back to inro](intro.md)
